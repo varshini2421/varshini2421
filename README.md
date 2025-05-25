@@ -7,6 +7,7 @@
 🌐 Portfolio: https://varshvv99.wixsite.com/portfolio 
 📫 Reach me at: varshinik.kuppusami@gmail.com  
 🔗 LinkedIn: https://www.linkedin.com/in/varshini-k/
+🌐 Medium Blog: https://medium.com/@varshvv99
 
 ### ⚡ Current Focus
 - AI Intern at Waters Corporation (Jun 2025 - Aug 2025)
